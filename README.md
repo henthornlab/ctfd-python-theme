@@ -9,7 +9,7 @@ Gonna ask people for their ideas on accent colors that work well with Rose Red.
 
 Somebody answered about using the gray color seen everywhere on campus. Not feeling it.
 
-Oops.
+Gonna scrap the Rose Red idea. There's a cool retro CTFd theme to check out.
 
 
 
