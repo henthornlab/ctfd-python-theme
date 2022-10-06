@@ -11,5 +11,4 @@ Somebody answered about using the gray color seen everywhere on campus. Not feel
 
 Gonna scrap the Rose Red idea. There's a cool retro CTFd theme to check out.
 
-
-
+Nah... gonna go with the crimson theme.
