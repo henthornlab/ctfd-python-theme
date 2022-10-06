@@ -14,3 +14,5 @@ Gonna scrap the Rose Red idea. There's a cool retro CTFd theme to check out.
 Nah... gonna go with the crimson theme.
 
 Need to clean up my thoughts now.
+
+Committing to the crimson theme.
